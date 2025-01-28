@@ -1,5 +1,8 @@
-## Hi there 👋
+# Hi there I'm Cris 🫡
 
+# I'm currently persuing a bachelor's degree in CS!
+
+# Reach out to me @ CristianGEO804@gmail.com
 <!--
 **Quishy08/Quishy08** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
